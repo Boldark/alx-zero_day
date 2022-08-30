@@ -1,1 +1,1 @@
-The man
+The man is good
